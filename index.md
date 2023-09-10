@@ -21,7 +21,6 @@ Infine, l'autore sottolinea quanto sia importante comprendere le dinamiche delle
 
 ## Capitolo 1
 
-
 Il libro "Il potere delle abitudini" di Charles Duhigg esplora la scienza delle abitudini, basandosi su studi e casi reali. Inizialmente, il libro presenta il caso di Eugene Pauly, un uomo che ha perso la memoria degli ultimi trent'anni della sua vita a causa dell'encefalite virale. Nonostante ciò, conserva ancora le abitudini che aveva acquisito prima della malattia. Questo caso viene confrontato con quello di H.M., un paziente che aveva subito una lesione cerebrale simile negli anni '50 e aveva perso completamente la memoria. Gli esperimenti dimostrano che anche quando si perde la capacità di ricordare, le abitudini possono rimanere intatte.
 
 Successivamente, vengono presentati altri esempi per illustrare come funzionano le abitudini nel cervello umano. Ad esempio, Eugene riesce ad uscire dalla stanza da letto al mattino senza problemi, nonostante non sia in grado di disegnare una pianta della sua casa o indicare dove si trovi l'abitazione. Ciò dimostra che ci sono abitudini che possiamo seguire anche se non ne siamo consapevoli.
