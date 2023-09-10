@@ -40,7 +40,7 @@ Infine, viene presentato il caso di Eugene Pauly che ha vissuto influenzato dall
 
 In conclusione, "Il potere delle abitudini" illustra come le abitudini siano parte integrante del nostro comportamento e del nostro cervello. Possiamo imparare nuove abitudini anche senza ricordarne i dettagli o comprendere appieno il processo decisionale che ne sta alla base. Le nostre abitudini possono essere controllate e modificate se capiamo come funzionano e cosa le determina.
 
-Capitolo 2
+## Capitolo 2
 Il primo capitolo del libro introduce Claude C. Hopkins, un importante dirigente americano nel campo della pubblicità. Viene raccontata la sua esperienza con l'amico che gli propone di sostenere una campagna promozionale per un nuovo prodotto chiamato "Pepsodent", una pasta dentifricia al sapore di menta. Nonostante inizialmente Hopkins fosse scettico sull'idea di vendere dentifricio, accetta alla fine e trasforma il Pepsodent in uno dei prodotti più famosi al mondo grazie a una strategia basata sulla creazione di nuove abitudini.
 
 Nel secondo capitolo si parla dell'esperimento condotto dalla Procter & Gamble per promuovere uno spray anti-odore sviluppato dall'azienda. Nonostante la grande quantità di dati e le competenze scientifiche dell'azienda nel campo del marketing, il team incaricato della campagna rischia il fallimento perché non sa come convincere le persone ad acquistare lo spray. Il giorno dopo, Schultz iniziò a introdurre dei segnali sonori prima che la forma colorata comparisse sullo schermo. Ad esempio, suonava un campanello ogni volta che appariva una spirale gialla.
