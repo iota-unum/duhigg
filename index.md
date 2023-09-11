@@ -70,7 +70,7 @@ Successivamente vincono anche il Super Bowl dimostrando che crederci è fondamen
 
 L'autore afferma infine che non esiste una procedura unica per cambiare le abitudini ma sottolinea l'importanza di trovare una routine alternativa e far parte di un gruppo che sostenga il cambiamento. Credere nella possibilità del cambiamento è essenziale e la fiducia può svilupparsi attraverso esperienze condivise. Il capitolo termina affermando che il cambio delle abitudini riguarda non solo gli individui ma anche le organizzazioni e le comunità.
 
-££ Capitolo 4
+## Capitolo 4
 
 Paul O'Neill diventa CEO della Aluminum Company of America (Alcoa) nel 1987 e pone la sicurezza dei lavoratori come priorità assoluta. Questo obiettivo contrastava con l'approccio tradizionale di Wall Street incentrato sui profitti e i costi. Tuttavia, O'Neill credeva che la sicurezza fosse un indicatore dell'efficienza complessiva dell'organizzazione.
 
