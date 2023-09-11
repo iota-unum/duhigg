@@ -172,3 +172,21 @@ Nel quinto capitolo, l'autore esamina il ruolo delle abitudini sociali nelle pro
 
 In conclusione, il potere delle abitudini sociali è evidente in molti aspetti della vita, dalla lotta per i diritti civili alla riabilitazione dalla dipendenza. L'appartenenza a gruppi sociali e l'adozione di nuove abitudini all'interno di tali gruppi possono avere un impatto significativo sul comportamento individuale e sulla società nel suo complesso.
 
+
+## Capitolo 9: L'Etica delle Abitudini e la Responsabilità Personale
+
+Il capitolo si apre raccontando la storia di Angie Bachmann, una madre di tre figlie che, cercando di colmare la solitudine nella sua vita quotidiana, si avvicina al mondo dei casinò. Inizialmente, Angie gioca solo una volta alla settimana, come una sorta di premio personale per resistere alle giornate vuote, seguendo regole rigide. Tuttavia, nel corso del tempo, Angie perde il controllo delle sue abitudini: inizia a giocare tutti i giorni, aumenta le puntate e perde completamente la cognizione delle vincite e delle perdite. La situazione peggiora quando si indebita con il casinò per migliaia di dollari, e la sua famiglia scopre la sua dipendenza.
+
+Nel secondo caso, viene presentato Brian Thomas, che accidentalmente uccide sua moglie durante un episodio notturno causato da disturbi del sonno come il sonnambulismo o i terrori notturni. Questi comportamenti sono il risultato di disturbi che compromettono il controllo cosciente sulle azioni.
+
+Entrambi i casi sollevano importanti questioni etiche riguardo fino a che punto siamo responsabili delle nostre azioni quando queste sono guidate dalle nostre abitudini più profonde. Alcuni ricercatori suggeriscono che i terrori notturni possano avere origini genetiche o essere influenzati da malattie come il morbo di Parkinson.
+
+Nel caso di Angie Bachmann, una giocatrice d'azzardo compulsiva, le neuroscienze suggeriscono che potrebbe aver perso il controllo delle sue azioni a causa dei meccanismi cerebrali coinvolti nelle abitudini e nelle dipendenze legate al gioco d'azzardo. Tuttavia, viene ritenuta responsabile delle sue azioni. D'altra parte, Brian Thomas viene assolto dall'accusa di omicidio, in quanto ha agito inconsciamente durante il sonno.
+
+Questi casi sollevano importanti questioni sull'etica delle abitudini e sulla responsabilità individuale. Sebbene le circostanze individuali e la mancanza di controllo cosciente possano ridurre o negare la responsabilità personale in determinate situazioni, è fondamentale che le persone assumano la responsabilità di cambiare le proprie abitudini quando ne sono consapevoli.
+
+Il capitolo sottolinea il concetto che le abitudini regnano sovrane nella nostra vita, secondo Aristotele, e che i comportamenti automatici sono una prova della nostra vera natura. Nonostante ciò, tutto ciò che sappiamo sulle abitudini ci dice che possono essere modificate se comprendiamo come funzionano.
+
+Esistono centinaia di abitudini diverse che influenzano le nostre giornate, ma ciascuna abitudine offre segnali specifici e gratificazioni uniche. Anche le abitudini più radicate possono essere cambiate se prendiamo decisioni consapevoli e identifichiamo i segnali e le gratificazioni che guidano le nostre routine.
+
+Il vero potere delle abitudini sta nella capacità di scegliere consapevolmente le nostre abitudini in modo da renderle automatiche e inevitabili. Possiamo influenzare il corso delle nostre abitudini e diventare padroni del nostro destino, proprio come Angie Bachmann avrebbe dovuto fare quando ha perso il controllo del suo comportamento a causa del gioco d'azzardo.
